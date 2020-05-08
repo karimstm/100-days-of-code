@@ -18,10 +18,22 @@ I decided to write down each and every word that I haven't cam across before.
 
 **Today's Progress**: Read the following books:
 
-* Catherine the great portrait of a woman (154-165)
+* Catherine the great portrait of a woman (165-175)
 * Madame Bouvary (Part One - Half of Chapter VI (6))
 
-**Thoughts:** I was able to learn an write down some word from the first book, but at the same time
+**Thoughts:** I was able to learn an write down some words from the first book, but at the same time
 I couldn't manage to finish the chapter 6 of `Madame Bouvary`, because the vocabulary was so intense to keep up with.
+
+**Link to work:** https://bit.ly/2SHLGya
+
+
+###  Day 2: May 8, 2020
+
+**Today's Progress**: Read the following books:
+
+* Catherine the great portrait of a woman (175-184)
+* Madame Bouvary (Part One - Second Half of Chapter VI (6))
+
+**Thoughts:** I would say that `Madame Bouvary` profusely filled with innumerable classical words, that is quite tedious to understand. on the flip side Catherine the greate was quite amusing and fun to read, with little words to search for.
 
 **Link to work:** https://bit.ly/2SHLGya
