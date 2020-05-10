@@ -51,3 +51,17 @@ I couldn't manage to finish the chapter 6 of `Madame Bouvary`, because the vocab
 **Thoughts:** Today with each page flip, I would feel like I'm prodding along and gaining more words and phrases structures to use later on. I yet unable to understand whole phrase of `Madame Bouvary` without looking up words online.
 
 **Link to work:** https://bit.ly/2SHLGya
+
+
+###  Day 4: May 10, 2020
+
+**Today's Progress**: Read the following books:
+
+* Catherine the great portrait of a woman (195 - 200)
+* Madame Bouvary (Part One - Chapter VIII (8))
+* Hands-On System Programming With Linux (Dynamic memory allocation up to 155 page)
+
+
+**Thoughts:** Today I didn't feel like reading, and I ascribe it to my illness of short breath. I hope tomorrow will be better Inshallah.
+
+**Link to work:** https://bit.ly/2SHLGya
