@@ -65,3 +65,26 @@ I couldn't manage to finish the chapter 6 of `Madame Bouvary`, because the vocab
 **Thoughts:** Today I didn't feel like reading, and I ascribe it to my illness of short breath. I hope tomorrow will be better Inshallah.
 
 **Link to work:** https://bit.ly/2SHLGya
+
+
+###  Day 5: May 11, 2020
+
+**Today's Progress**: No reading:
+
+
+**Thoughts:** I didn't read anything today, since I was doing Dopamin Detox challenge.
+
+**Link to work:** https://bit.ly/2SHLGya
+
+
+###  Day 6: May 12, 2020
+
+**Today's Progress**: Read the following books:
+
+* Catherine the great portrait of a woman (200-206)
+* Madame Bouvary (Part One - Few pages of chapter IX (9))
+* صور من حياة الصحابة (إلى الصفحة 40)
+
+
+**Thoughts:** With each read, I would became more perceive of some vocabularies. Unlike the other days, today I started reading something about The Companions of prophet Muhammad peace be upon him in Arabic language.
+**Link to work:** https://bit.ly/2SHLGya
