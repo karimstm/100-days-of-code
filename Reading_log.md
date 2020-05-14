@@ -88,3 +88,15 @@ I couldn't manage to finish the chapter 6 of `Madame Bouvary`, because the vocab
 
 **Thoughts:** With each read, I would became more perceive of some vocabularies. Unlike the other days, today I started reading something about The Companions of prophet Muhammad peace be upon him in Arabic language.
 **Link to work:** https://bit.ly/2SHLGya
+
+
+###  Day 7: May 13, 2020
+
+**Today's Progress**: Read the following books:
+
+* Catherine the great portrait of a woman (206-222)
+* Madame Bouvary (Part One - Few pages of chapter IX (9))
+
+
+**Thoughts:** Catherine reading today was a long run. Nevertheless still `Madame Bouvary` what makes me tired and frustrated with each page, if not each phrase.
+**Link to work:** https://bit.ly/2SHLGya
