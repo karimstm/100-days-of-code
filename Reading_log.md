@@ -115,3 +115,16 @@ I couldn't manage to finish the chapter 6 of `Madame Bouvary`, because the vocab
 **Thoughts:** I don't know if it was because I read only a few pages, I didn't feel that much tired from do the reading today.
 
 **Link to work:** https://bit.ly/2SHLGya
+
+
+###  Day 9: May 15, 2020
+
+**Today's Progress**: Read the following books:
+
+* نظرية الفُستق (ما هي خططك في الحياة)
+* يوتوبيا - 12
+
+
+**Thoughts:** I felt today like changing the books that I'm reading to one less prone and gloomy, something I would understand without puting to much of efforts.
+
+**Link to work:**
