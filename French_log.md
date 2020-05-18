@@ -35,3 +35,31 @@
 Maintenant je peux conjuguer le verbe etre et avoir, et meme dis ma nationalite correctement sans hesite.
 
 **Lien vers le travail:**
+
+
+###  Jour 2: 16 Mai 2020
+
+**Progrès d'aujourd'hui**:
+
+* Verbe VIVRE au présent
+* Il y a; Il n'y a pas
+* Prépositions de lieu
+* Ajectifs qualificatifs
+* Prononciation du [e]
+* Les trois types d'interrogation
+* Brief présentation de paris
+
+**Lien vers le travail:**
+
+
+###  Jour 3: 17 Mai 2020
+
+**Progrès d'aujourd'hui**:
+
+* Les Adjectifs possessifs
+* Formes de la négation
+
+
+**Pensées:** J'ai bien appris les adjectifs possessifs et comment l'utiliser d'une manier correct.
+
+**Lien vers le travail:**

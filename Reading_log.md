@@ -128,3 +128,25 @@ I couldn't manage to finish the chapter 6 of `Madame Bouvary`, because the vocab
 **Thoughts:** I felt today like changing the books that I'm reading to one less prone and gloomy, something I would understand without puting to much of efforts.
 
 **Link to work:**
+
+
+###  Day 10: May 16, 2020
+
+**Today's Progress**: Read the following books:
+
+* نظرية الفستق حتى الصفحة 27
+* يوتوبيا - 17
+
+**Link to work:**
+
+
+###  Day 11: May 17, 2020
+
+**Today's Progress**: Read the following books:
+
+* `Madame Bouvary`
+
+
+**Thoughts:** I'm back to where I was before the break, still intimidated by the structure of the book, but I will manage somehow.
+
+**Link to work:** https://bit.ly/2SHLGya
