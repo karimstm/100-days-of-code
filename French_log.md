@@ -63,3 +63,39 @@ Maintenant je peux conjuguer le verbe etre et avoir, et meme dis ma nationalite 
 **Pensées:** J'ai bien appris les adjectifs possessifs et comment l'utiliser d'une manier correct.
 
 **Lien vers le travail:**
+
+
+###  Jour 4: 18 Mai 2020
+
+**Progrès d'aujourd'hui**:
+
+* Verbes pronominaux au present
+* Verbes Aller et Sortir au present
+* Se reperer dans le temps
+* Expression de l'heure et de la frequence
+* La moderation d'adjectifs
+* Expression de la ressemblance ou de la difference
+* Superlatif + adjectif
+
+
+**Pensées:** 
+
+**Lien vers le travail:**
+
+
+###  Jour 5: 19 Mai 2020
+
+**Progrès d'aujourd'hui**:
+
+* Verbe Prendre au présent et impératif
+* Verbe Mettre présent et impératif
+* Mots et adjectifs interrogatif
+* Adjectifs démonstratifs
+* Ajectifs de couleurs
+* Formules de politess liées aux situation d'achat
+* Créateur de mode Lageref, Maison de coutures Chanel
+
+
+**Pensées:** Je suis très heureux d'être capable de comprendre et suivre ces cours, Maintenet je suis sur que apres quelque mois, je deverai capable de parler la langue francais.
+
+**Lien vers le travail:**

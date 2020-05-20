@@ -150,3 +150,26 @@ I couldn't manage to finish the chapter 6 of `Madame Bouvary`, because the vocab
 **Thoughts:** I'm back to where I was before the break, still intimidated by the structure of the book, but I will manage somehow.
 
 **Link to work:** https://bit.ly/2SHLGya
+
+###  Day 12: May 18, 2020
+
+**Today's Progress**: Read the following books:
+
+* `Madame Bouvary`
+
+
+**Thoughts:** 
+
+**Link to work:** https://bit.ly/2SHLGya
+
+
+###  Day 13: May 18, 2020
+
+**Today's Progress**: Read the following books:
+
+* `Madame Bouvary` Part Two (Chapter II - 2 Pages)
+
+
+**Thoughts:** 
+
+**Link to work:** https://bit.ly/2SHLGya
