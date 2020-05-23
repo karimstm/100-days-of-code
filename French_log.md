@@ -99,3 +99,52 @@ Maintenant je peux conjuguer le verbe etre et avoir, et meme dis ma nationalite 
 **Pensées:** Je suis très heureux d'être capable de comprendre et suivre ces cours, Maintenet je suis sur que apres quelque mois, je deverai capable de parler la langue francais.
 
 **Lien vers le travail:**
+
+
+###  Jour 6: 20 Mai 2020
+
+**Progrès d'aujourd'hui**:
+
+* Verbe Prendre au présent et impératif
+* Verbe Mettre présent et impératif
+* Mots et adjectifs interrogatif
+* Adjectifs démonstratifs
+* Ajectifs de couleurs
+* Formules de politess liées aux situation d'achat
+* Créateur de mode Lageref, Maison de coutures Chanel
+
+
+**Pensées:** Je suis très heureux d'être capable de comprendre et suivre ces cours, Maintenet je suis sur que apres quelque mois, je deverai capable de parler la langue francais.
+
+**Lien vers le travail:**
+
+
+###  Jour 7: 21 Mai 2020
+
+**Progrès d'aujourd'hui**:
+
+* Passé composé
+* Verbes Savoir Pourvoir et Connaître au présent indicatif
+* Adjectifs qualificatifs
+* Marqeurs temporels du passé
+* Phonétique des liasons
+* Tradition le Poisson d'Avril
+
+
+**Pensées:** Maintenant, Je crois que j'en suis capable de utiliser le passé composé correctemnt
+
+**Lien vers le travail:**
+
+
+
+###  Jour 8: 22 Mai 2020
+
+**Progrès d'aujourd'hui**:
+
+* Les numéros cardinaux et ordinaux
+* Pronoms COD COI
+
+
+**Pensées:** Je suis très heureux d'être capable de comprendre et suivre ces cours, Maintenet je suis sur que apres quelque mois, je deverai capable de parler la langue francais.
+
+**Lien vers le travail:**
