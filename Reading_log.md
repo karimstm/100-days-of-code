@@ -197,3 +197,15 @@ I couldn't manage to finish the chapter 6 of `Madame Bouvary`, because the vocab
 **Thoughts:** 
 
 **Link to work:** https://bit.ly/2SHLGya
+
+
+###  Day 17: May 24, 2020
+
+**Today's Progress**: Read the following books:
+
+* ديوان الأعشى الكبير
+
+
+**Thoughts:** 
+
+**Link to work:** https://bit.ly/2SHLGya

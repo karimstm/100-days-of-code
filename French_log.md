@@ -148,3 +148,29 @@ Maintenant je peux conjuguer le verbe etre et avoir, et meme dis ma nationalite 
 **Pensées:** Je suis très heureux d'être capable de comprendre et suivre ces cours, Maintenet je suis sur que apres quelque mois, je deverai capable de parler la langue francais.
 
 **Lien vers le travail:**
+
+
+###  Jour 9: 23 Mai 2020
+
+**Progrès d'aujourd'hui**:
+
+* Le passé composé
+* Phrase exclamative introduite par quel.
+
+
+**Pensées:**
+
+**Lien vers le travail:**
+
+
+###  Jour 10: 24 Mai 2020
+
+**Progrès d'aujourd'hui**:
+
+* Les Prépositions et adverbes de lieu
+* Le conditionnel présent
+
+
+**Pensées:** Le conditionnel présent c'est l'une le plus utilise conjugaison, On le besion pour la politesse, le sohait, et pour donné des conseils...etc...
+
+**Lien vers le travail:**
